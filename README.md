@@ -1,16 +1,12 @@
-## Hi there 👋
+## hi! i'm sherly!
 
-<!--
-**newsherlytemple/newsherlytemple** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+some professional info about me: 
+- MSCS student @ UCLA
+- Google Deepmind Scholar
+- BS CS, BS Math from CSU Stanislaus May 2023
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+some fun info about me:
+- i like collecting old vinyls
+- i like reading
+- i like knitting and crocheting and sewing
+- i'm trying to learn farsi and french!
