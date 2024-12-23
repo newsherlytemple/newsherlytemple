@@ -9,4 +9,6 @@ some fun info about me:
 - i like collecting old vinyls
 - i like reading
 - i like knitting and crocheting and sewing
-- i'm trying to learn farsi and french!
+- i'm trying to learn farsi and french
+
+connect with me @ https://www.linkedin.com/in/sherly-yaghoubi-9b4524129/
