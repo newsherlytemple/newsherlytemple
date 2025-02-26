@@ -7,8 +7,8 @@ some info about me:
 
 some fun info about me:
 - i like collecting old vinyls
-- i like reading sad books
+- i like reading books
 - i like knitting and crocheting and sewing
 - i'm trying to learn farsi and french
 
-please connect with me @ https://www.linkedin.com/in/sherly-yaghoubi-9b4524129/
+please connect with me @ https://www.linkedin.com/in/sherly-yaghoubi-9b4524129/ !
